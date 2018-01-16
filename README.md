@@ -50,7 +50,7 @@
 
 Это [ссылка на мой vk](http://vk.com/glebshumakov "VK")
 
-![Случайная картинка красивых облаков](http://www.weatherwizkids.com/wp-content/uploads/2015/02/fractus-clouds.jpg )
+[Случайная картинка красивых облаков, которые я тоже очень люблю](http://www.weatherwizkids.com/wp-content/uploads/2015/02/fractus-clouds.jpg )
 
 
 Думаю, стоит отметить, что про ~зачеркивания~ я узнал на этом [сайте]
